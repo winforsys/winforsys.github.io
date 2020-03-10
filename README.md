@@ -4,3 +4,4 @@ Welcome to Shanghai Winfor Technology Co., LTD.
 
 Our Official Website is under construction.
 
+`By Amanda Chang`
